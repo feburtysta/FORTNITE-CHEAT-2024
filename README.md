@@ -2,7 +2,7 @@
 
 <div align="center">
 
-# UPDATE 16.07.2024
+# UPDATE 12.8.2024
 
 ## ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://pastebin.com/zwGphvgA)***
 
